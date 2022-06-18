@@ -16,13 +16,13 @@ Airbnb has established their market in accommodation business successfully since
 
 ![image](https://user-images.githubusercontent.com/50405283/169144376-87642ac6-39d3-4b1b-a374-fc62aab51685.png)
 
-![image](https://user-images.githubusercontent.com/50405283/169144401-94b3dafa-fa0f-426d-9ac5-57e7e5412e5b.png)
+![image](https://user-images.githubusercontent.com/50405283/174459231-2ee82b77-a27f-421f-a480-ccf1ae2b6940.png)
 
-![image](https://user-images.githubusercontent.com/50405283/169144449-cc98e8c6-8eb2-4504-8ab4-e356eeabc1d5.png)
+![image](https://user-images.githubusercontent.com/50405283/174459230-0c119fc0-7408-4fd1-bec3-338cb33994c8.png)
 
-![image](https://user-images.githubusercontent.com/50405283/169144467-b7fa8e0d-0b1f-4d16-bd88-42bef07302e3.png)
+![image](https://user-images.githubusercontent.com/50405283/174459223-02b050d6-4ca9-4d69-8c9f-dddeceef1dba.png)
 
-![image](https://user-images.githubusercontent.com/50405283/169144486-2ec8975b-8486-4807-bb16-083482590f12.png)
+![image](https://user-images.githubusercontent.com/50405283/174459214-ba859dfb-a27b-4822-afb3-430e0b98e3c8.png)
 
 ![image](https://user-images.githubusercontent.com/50405283/169144499-de80c085-7000-4f33-a3ac-42b72d010046.png)
 
